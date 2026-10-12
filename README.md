@@ -225,4 +225,4 @@ Octodad is available as a complete free version, with all features and updates i
 Get ready for a uniquely fun adventure! **Download Octodad free today and discover the challenges of being a father with eight arms!**
 
 ---
-**Last updated:** 2026-10-11 20:02:32 UTC
+**Last updated:** 2026-10-12 00:19:33 UTC
